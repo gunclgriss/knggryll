@@ -1,6 +1,6 @@
 <h1>✨ Kingroyal Giriş 2025 – Bahis ve Casino Deneyimi! ✨</h1>
 <p>Kingroyal, dinamik yapısı, yüksek oranlı bahis seçenekleri ve avantajlı bonusları ile 2025 yılında da bahis severlerin favori adresi olmaya devam ediyor! 🎰 Güvenilir altyapısı sayesinde, Kingroyal’te spor bahislerinden canlı casino oyunlarına kadar geniş bir yelpazede eğlenceli vakit geçirebilirsiniz. Kesintisiz hizmet sunan bu platformda, en güncel giriş adresi üzerinden kolayca erişim sağlayarak kazancınızı artırabilirsiniz. 💸</p>
-<a href="https://t.ly/MRT" title="Kingroyal Bonus Fırsatları">
+<a href="https://t.me/+vT5xydT9LLBlMzA0" title="Kingroyal Bonus Fırsatları">
     <img src="https://i.ibb.co/5K7Ks6w/zzzz3.gif" alt="Kingroyal Bonus Kazan" style="max-width:100%; height:auto; border-radius:8px;">
 </a>
 <div class="description">
@@ -15,5 +15,5 @@
         <li>🔐 <strong>Güvenilir ve Lisanslı Bahis Deneyimi:</strong> Güçlü altyapısı ve lisanslı yapısıyla güvenilir hizmet sunuyor.</li>
     </ul>
     <p>Kingroyal, her geçen gün büyüyen kullanıcı kitlesi ile sektördeki yerini sağlamlaştırıyor. 🌟 Eğlenceli ve kazanç dolu bir bahis deneyimi için Kingroyal’in güncel giriş adresini takip edin ve avantajlardan faydalanın!</p>
-    <a href="https://t.ly/MRT" title="Kingroyal Giriş Adresi">🔗 Kingroyal Giriş İçin Hemen Tıklayın!</a>
+    <a href="https://t.me/+vT5xydT9LLBlMzA0" title="Kingroyal Giriş Adresi">🔗 Kingroyal Giriş İçin Hemen Tıklayın!</a>
 </div>
